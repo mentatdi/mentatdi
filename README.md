@@ -29,4 +29,4 @@
 ### 🔗 Connect with Me
 - **GitHub:** [github.com/mentatdi](https://github.com/mentatdi)
 -  **Telegram** @zak1rov_zx
-- **Email:** elchinbekzokirov660@example.com
+- **Email:** elchinbekzokirov660@gmail.com
